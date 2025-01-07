@@ -11,7 +11,7 @@
 - 200 g feiner Bulgur
 - 3 Esslöffel Tomatenmark
 - 2 Esslöffel Paprikamark
-- Eine Dose Pizzatomaten oder nach belieben equvalente Menge Tomate fein pürieren.
+- Eine Dose Pizzatomaten oder nach belieben equvalente Menge Tomate fein pürieren
 
 ### Frisches Gemüse:
 
@@ -50,10 +50,10 @@
 
 4. **Gewürze:**
 
-   - Salz und die Gewürze in der sich abkühlenden! Sauce verrühren.
+   - Salz und die Gewürze in der sich abkühlenden! Sauce verrühren
    - Nach circa 5min zieh Zeit den Bulgur dazu geben und gut verrühren
    - Deckel auf den Topf und weiter 10min warten. Ja, Zeit und Liebe
-   - Nach dem Abschmecken den Olivenöl, Zitronensaft, Granatapfelsirup hinzufügen und nochmal untermischen.
+   - Nach dem Abschmecken den Olivenöl, Zitronensaft, Granatapfelsirup hinzufügen und nochmal untermischen
 
 5. **Abschmecken und servieren:**
    - Den Bulgursalat abschmecken und bei Bedarf mit weiter verfeinern
