@@ -11,12 +11,12 @@
 - 200 g feiner Bulgur
 - 3 Esslöffel Tomatenmark
 - 2 Esslöffel Paprikamark
-- Eine Dose Pizzatomaten oder nach belieben equvalente Menge Tomate fein pürieren
+- Eine Dose Pizzatomaten oder nach belieben equivalente Menge Tomate fein pürieren
 
 ### Frisches Gemüse:
 
 - 1 Bund Frühlingszwiebeln (fein gehackt)
-- 1 Bund glatte Petersilie (langweilig) od. Variation die keine Petersilie mögen: Korriander (fein gehackt)
+- 1 Bund glatte Petersilie (langweilig) od. Variation, die keine Petersilie mögen: Koriander (fein gehackt)
 - 1 Bund Nane (Nana-Minze für Almans) (fein gehackt)
 
 ### Gewürze:
